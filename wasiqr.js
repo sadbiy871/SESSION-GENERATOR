@@ -68,8 +68,8 @@ ______________________________________
 ╚════════════════════════╝
 ╔═════◇
 ║  『••• 𝗩𝗶𝘀𝗶𝘁 𝗙𝗼𝗿 𝗛𝗲𝗹𝗽 •••』
-║❒ *Ytube:* _youtube.com/@wasitech1
-║❒ *Owner:* _https://wa.me/message/923192730918_
+║❒ *Ytube:* _https://youtu.be/pk1EYRTShno?si=FTGMMQ_IaHOLGQEt
+║❒ *Owner:* _https://wa.me/message/923703321311_
 ║❒ *Repo:* _https://github.com/sadbiy871/TECH-MASTER_
 ║❒ *WaGroup:* _https://chat.whatsapp.com/FF6YuOZTAVB6Lu65cnY5BN_
 ║❒ *WaChannel:* _https://whatsapp.com/channel/0029VaDK8ZUDjiOhwFS1cP2j_
